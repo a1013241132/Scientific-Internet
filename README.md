@@ -24,7 +24,12 @@ https://xn--mes358a9urctx.com/#/register?code=kv0jjfNK
 
 ![屏幕截图 2025-01-12 114101](https://github.com/user-attachments/assets/43e43720-cee8-4fb9-a180-3f047ed0b650)
 
+点击一键订阅，注意如果不通过翻墙能进入该网站可以直接选择导入（序号2）。如果不能可以选择手动导入（找一个有科学上网的朋友进入网站）选择序号1将链接复制下来
 
+打开我分享的软件（NekoBox）
+
+
+![b70833cfd15a75ca4332019faea545f](https://github.com/user-attachments/assets/dcbabe86-7585-4dc4-ba12-f28217781f83)
 
 
 
