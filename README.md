@@ -29,9 +29,13 @@ https://xn--mes358a9urctx.com/#/register?code=kv0jjfNK
 打开我分享的软件（NekoBox）
 
 ![屏幕截图 2025-01-12 114814](https://github.com/user-attachments/assets/db8401ee-e282-49f2-9941-ff698436d36e)
+
 ![屏幕截图 2025-01-12 114838](https://github.com/user-attachments/assets/cb30ca17-2359-4597-94df-092e030309cd)
+
 ![屏幕截图 2025-01-12 114930](https://github.com/user-attachments/assets/563c10e7-ba5e-4499-aec5-088b09b50674)
+
 ![屏幕截图 2025-01-12 114925](https://github.com/user-attachments/assets/a16a793a-f642-4510-b8f0-26eebff20232)
+
 ![屏幕截图 2025-01-12 114858](https://github.com/user-attachments/assets/9e986197-b51b-4d32-bcf5-242855fbf166)
 
 
