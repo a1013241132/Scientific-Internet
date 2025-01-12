@@ -21,7 +21,9 @@ https://xn--mes358a9urctx.com/#/register?code=kv0jjfNK
 ![屏幕截图 2025-01-12 112617](https://github.com/user-attachments/assets/d5f21644-5a26-49cd-a462-a16a875423df)
 
 首先打开代理网站完成账号注册并且登录
-![Uploading 97e373a83b0d133e9c1ab9ba52b0a0c.jpg…]()
+
+![屏幕截图 2025-01-12 114101](https://github.com/user-attachments/assets/43e43720-cee8-4fb9-a180-3f047ed0b650)
+
 
 
 
